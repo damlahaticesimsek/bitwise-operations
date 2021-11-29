@@ -1,1 +1,0 @@
-md yapma belgesi
